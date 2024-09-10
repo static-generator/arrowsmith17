@@ -1,2 +1,2 @@
 # Arrowsmith
-### CN 17 **Natzumi Ishida**
+### CN 17 **Natzumi** *Ishida*
