@@ -13,4 +13,3 @@ I'm 15 years old, born on March. I've been in Ateneo since Pre-school, and sigur
 - Listening to Music
 
   # Song/Artist I like:
-  
