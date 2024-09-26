@@ -10,6 +10,6 @@ I'm 15 years old, born on March. I've been in Ateneo since Pre-school, and sigur
 - Writing
 - Crocheting !!
 - Reading
-- Listening to Music
+- Listening to Music (RnB, Pop. alternative/indie
 
   # Song/Artist I like:
